@@ -1,0 +1,1 @@
+As requested by code junkies we put some extra spice, DO NOT download the script in your work device since this resembles a malicious code you might get in trouble with your InfoSec or CyberSec Team, which is yourself!!! For this hidden 10 readable character string in the heap and layers of code
